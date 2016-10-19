@@ -1,2 +1,2 @@
 # DataViz
-Hi I'm Sarah Boyle and I am a Junior Journalism and Politcal Science majpr.
+Hi I'm Sarah Boyle and I am a Junior at **Lehigh University** Journalism and Politcal Science majpr.
